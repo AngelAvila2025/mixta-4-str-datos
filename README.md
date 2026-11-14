@@ -1,1 +1,2 @@
-# mixta-4-str-datos
+20243DS138@utez.edu.mx
+AngelAvila2025
